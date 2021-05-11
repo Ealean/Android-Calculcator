@@ -3,8 +3,8 @@
  
 ![image](https://user-images.githubusercontent.com/79641956/117847501-f89f9f00-b2b4-11eb-8345-15be8127f9ea.png)
 
-![Uploading Snipaste_2021-05-12_00-29-02.png…]()
+![Snipaste_2021-05-12_00-29-02](https://user-images.githubusercontent.com/79641956/117852111-97c69580-b2b9-11eb-9ffe-b7ccb0bb00df.png)
 
-![Uploading Snipaste_2021-05-12_00-29-35.png…]()
+![Snipaste_2021-05-12_00-29-35](https://user-images.githubusercontent.com/79641956/117852121-99905900-b2b9-11eb-8ea7-97bbf82b9745.png)
 
-![Uploading Snipaste_2021-05-12_00-30-05.png…]()
+![Snipaste_2021-05-12_00-30-05](https://user-images.githubusercontent.com/79641956/117852125-9ac18600-b2b9-11eb-83f2-4c5f5f913961.png)
